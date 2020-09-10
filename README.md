@@ -1,0 +1,2 @@
+# wula
+persomal thoughts
